@@ -33,4 +33,13 @@ my fictional husbands r
 
 I'm not sure if that counts as yumishipping if they are FROM a dating yandere game ;v;, but idk if you int with me as them and ship urself or as MC idm cus I idm sharing :p
 
+I'm a minor so I'm not too comfortable with interacting with ppl over 20 b(I'm under 17 but over 12) but idm being friends
+I don't online date like ever but if I'm calling someone or someone is calling me wife or smth like dat they are my bff we ain't dating fam 🙏
+
+my keyboard makes me wanna commit crimes sometimes with how glitchy n laggy it is especially with the typos and autocorrect it pmo sometimes
+
+if u r one of my bffs and want to be mentioned as in (_name u go by_ - _quote_ _can be more then one_) just message me on discord
+yes I have discord
+
+
 this is still a wip and unorganized AF but it works for now ;v:
