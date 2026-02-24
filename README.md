@@ -12,7 +12,7 @@ _things I don't like_: rude people, people beefing for no reason, being covered 
 I'm a multishipper meaning I allow any ships even if it was with my own original characters, and idm yumishippers (people who ship themselves with certain characters) and if you want you can int for the purposes of ships with whatever character I am atm
 
 
-# HEAVY DNI : child x any adult shippers, animal characters x normal humans/humanoid characters shippers, parent x child shippers, p3d0s, 🍇1st5, 5/@-ers (unless you were FORCED bc I know some people get forced to do that typa crap and feel very guilty so but the ones that aren't unless you're drowning in guilt kys I have very serious hatred towards you mfs cus my friends experienced some of these horrors and people do horrible things to themselves bc of those things, so I mean it when I say kys if you do those things without drowning in guilt, if you don't like it get out) 
+**HEAVY DNI : child x any adult shippers, animal characters x normal humans/humanoid characters shippers, parent x child shippers, p3d0s, 🍇1st5, 5/@-ers (unless you were FORCED bc I know some people get forced to do that typa crap and feel very guilty so but the ones that aren't unless you're drowning in guilt kys I have very serious hatred towards you mfs cus my friends experienced some of these horrors and people do horrible things to themselves bc of those things, so I mean it when I say kys if you do those things without drowning in guilt, if you don't like it get out)**
 
 
 -random info about meh-
@@ -39,7 +39,8 @@ I don't online date like ever but if I'm calling someone or someone is calling m
 my keyboard makes me wanna commit crimes sometimes with how glitchy n laggy it is especially with the typos and autocorrect it pmo sometimes
 
 if u r one of my bffs and want to be mentioned as in (_name u go by_ - _quote_ _can be more then one_) just message me on discord
-yes I have discord
+yes I have discord if u want to talk to me on disc just ask and I'll give u it
 
+I have Walmart Internet lowkey
 
 this is still a wip and unorganized AF but it works for now ;v:
