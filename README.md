@@ -29,6 +29,7 @@ I have anger issues and ADHD so I might unintentionally do weird things or get f
 I like being interacted with especially if I have the 'looking for chat' on or 'int' in my characters name it means that I would love to be interacted with and don't mind it if you just come up and cuddle with me
 I got Walmart Internet so I will prob disconnect more then two time's sanity
 I don't like shedletsky or itrapped from forsaken but idm someone int as em I just don't really like em they just pmo
+english isn't my first language so mb if I get some things wrong
 
 my fictional husbands r
 # 1 Mycheal from mushroom oasis
@@ -48,5 +49,10 @@ yes I have discord if u want to talk to me on disc just ask and I'll give u it
 I have Walmart Internet lowkey
 
 I fickin Noob and Looey -Noob is me when I'm alone cus I get anxious and nervous I don't like being alone and looey is me with friends BC I got adhd- \ idm doubles and you can int with any ship even if I'm as my kin pony
+
+
+# my BESTIESSSS <3333 {WE'RE MARRIED TRUST}
+
+Cuddling-Encouraged-heavily-Dnc: 1x1x1x1's canon wife + 1x1x1x1 irl [REAL 1X -trust-]
 
 this is still a wip and unorganized AF but it works for now ;v:
