@@ -9,7 +9,11 @@ _things I don't like_: rude people, people beefing for no reason, being covered 
 
 ~•Fandoms I'm in or/and like•~ : murder drones, how to train your dragon, it's not me it's my basement, crowscare, sweet NO death (and other visual novel games made by Arcadekitten like lucky rabbit, my neighbor Enide,Fea's night out), Enigmaverse, campfire cooking in another world with my absurd skill, Inuyasha, hunter x hunter, the freak circus, the kid at the back, mushroom oasis, deadplate, rot in paradise, broken colors, forsaken, misterclockworks, manlybadasshero, Lion (I forgohisis full channel name but he plays visual novels and streams them and puts videos on YouTube), Eddie (I forgot his full channel name but he's a Mexican guy who reacts to spooky stuff and plays spooky games at least from what I watch), itsfunneh, undertale, little nightmares, stray (the cyberpunk cat game and I have made b-12), Wall-E, Dandys world, and probably wayyy more I'll add later if I remember them
 (note: if the developers or people partaking in these fandoms or games are bad people or have done unacceptable things, I'm probably not aware and sure as hell don't support them, I mostly like the characters and the stories, not the makers) 
-I'm a multishipper meaning I allow any ships even if it was with my own original characters, and idm yumeshippers (people who ship themselves with certain characters) and if you want you can int for the purposes of ships with whatever character I am atm and you can ask me to change skins if I have the character your looking for 
+
+`comfort characters` : Lampchop -from sweet NO death-, Acorn -also from sweet no dead also not sure if that is their name-, Mycheal -from mushroom oasis-, Noob -from forsaken or roblox in gen-, Wall-E -from...well Wall-E-, Uzi -from murder drones-, any tfc character (I love the silly goober clown), toothless -from httyd-, Looey -from Dandy's world- , Elliot -from forsaken or pizza place-
+(cuddling is encouraged if u are using any of these characters!!!) 
+
+I'm a multishipper meaning I aallow aanyships even if it was with my own original characters, and idm yumeshippers (people who ship themselves with certain characters) and if you want you can int for the purposes of ships with whatever character I am atm and you can ask me to change skins if I have the character your looking for 
 
 
 **HEAVY DNI : child x any adult shippers, animal characters x normal humans/humanoid characters shippers, parent x child shippers, p3d0s, 🍇1st5, 5/@-ers (unless you were FORCED bc I know some people get forced to do that typa crap and feel very guilty so but the ones that aren't unless you're drowning in guilt kys I have very serious hatred towards you mfs cus my friends experienced some of these horrors and people do horrible things to themselves bc of those things, so I mean it when I say kys if you do those things without drowning in guilt, if you don't like it get out) / homophobic and transphobic dni / copycats dni**
@@ -29,6 +33,7 @@ I have anger issues and ADHD so I might unintentionally do weird things or get f
 I like being interacted with especially if I have the 'looking for chat' on or 'int' in my characters name it means that I would love to be interacted with and don't mind it if you just come up and cuddle with me
 I got Walmart Internet so I will prob disconnect more then two time's sanity
 I don't like shedletsky or itrapped from forsaken but idm someone int as em I just don't really like em they just pmo
+I wait to be approached I'm too shy to talk to ppl directly so unless I have DNI in my name PLEASE INT (same thing with cuddles+ hugs even if I don't have c+h in my name u can cud freely!, I mostly won't know how to react so I'd just give u a nod of acknowledgement) 
 english isn't my first language so mb if I get some things wrong
 
 my fictional husbands r
