@@ -5,9 +5,9 @@ my pronouns are She/her but you can call me whatever name or pronouns the charac
 
 _things I like_: drawing, art, randoms, talking to others, listening to lore, torture, pain and trauma (IN FICTION NOT IRL), writing lore, watching anime, watching gamers, YouTube, visual novels, making characters, making skin in pony town, playing fashion roulettes and find the skins in pony town, animals, my friends, cuddles in pony town (if you want to cuddle in the game you can idm!), ships, randoms, headcanons, aus, songs, song lyrics
 
-_things I don't like_: rude people, people beefing for no reason, being covered in pony town and covering others (if it's in cuddles idm) people who support @bu53 and or do it, p3d05 and 🍇i5t5 (I will commit crimes against one if I see one irl and I say that proudly cus I hate them), people playing the victim, pick mes, people insulting my friends
+_things I don't like_: rude people, people beefing for no reason, being covered in pony town and covering others (if it's in cuddles idm) people who support @bu53 and or do it, p3d05 and 🍇i5t5 (I will commit crimes against one if I see one irl and I say that proudly cus I hate them), people playing the victim, pick mes, people insulting my friends, dark/proships and shippers, people who are ok with Trump existing, people who support 15r34l (I'm Arab so I'm bais), manipulative ppl
 
-~•Fandoms I'm in or/and like•~ : murder drones, how to train your dragon, it's not me it's my basement, crowscare, sweet NO death (and other visual novel games made by Arcadekitten like lucky rabbit, my neighbor Enide,Fea's night out), Enigmaverse, campfire cooking in another world with my absurd skill, Inuyasha, hunter x hunter, the freak circus, the kid at the back, mushroom oasis, deadplate, rot in paradise, broken colors, forsaken, misterclockworks, manlybadasshero, Lion (I forgohisis full channel name but he plays visual novels and streams them and puts videos on YouTube), Eddie (I forgot his full channel name but he's a Mexican guy who reacts to spooky stuff and plays spooky games at least from what I watch), itsfunneh, undertale, little nightmares, stray (the cyberpunk cat game and I have made b-12), Wall-E, Dandys world, and probably wayyy more I'll add later if I remember them
+~•Fandoms I'm in or/and like and youtubers too cus why not•~ : murder drones, how to train your dragon, it's not me it's my basement, crowscare, sweet NO death (and other visual novel games made by Arcadekitten like lucky rabbit club, my neighbor Enide,Fia's night out), Enigmaverse, campfire cooking in another world with my absurd skill, Inuyasha, hunter x hunter, the freak circus, the kid at the back, mushroom oasis, deadplate, rot in paradise, broken colors, forsaken, misterclockworks, manlybadasshero, Lion (I forgohisis full channel name but he plays visual novels and streams them and puts videos on YouTube), Eddie (I forgot his full channel name but he's a Mexican guy who reacts to spooky stuff and plays spooky games at least from what I watch), itsfunneh, undertale, little nightmares, stray (the cyberpunk cat game and I have made b-12), Wall-E, Dandys world, and probably wayyy more I'll add later if I remember them
 (note: if the developers or people partaking in these fandoms or games are bad people or have done unacceptable things, I'm probably not aware and sure as hell don't support them, I mostly like the characters and the stories, not the makers) 
 
 `comfort characters` : Lampchop -from sweet NO death-, Acorn -also from sweet no dead also not sure if that is their name-, Mycheal -from mushroom oasis-, Noob -from forsaken or roblox in gen-, Wall-E -from...well Wall-E-, Uzi -from murder drones-, any tfc character (I love the silly goober clown), toothless -from httyd-, Looey -from Dandy's world- , Elliot -from forsaken or pizza place-
@@ -24,36 +24,44 @@ I like giving out compliments for no good reason I just like giving them to make
 yes I will make fun of my own skins it doesn't mean I don't like em (unless they're very old or my first skins) I just like making fun of then and mostly just want sm1 to laugh at it
 
 -random info about meh-
-I do not like being covered or covering someone in pony town so if I move away it doesn't mean I don't like you or Im being hostile I just don't wanna be covered or cover you cus I don't want to be rude ;v;
-I'm a lil awkward and I'm mostly quiet and random and I mostly like just listening instead of talking,and if I accidentally shift the conversation to myself it's completely unintentional and something my brain does without meaning to because I'm just trying to figure out a response but don't know what so I instead stay quiet or come up with something,but I've been noticing that so I try to stop it but if I accidentally do it I'm really sorry (◞‸◟ㆀ) and please do inform me if I do it, whenever I'm in pony town I always have to be doing something so usually playing in rps or mini games in docks or talking to my friends
-I'm usually in docks or in front of cafe in the forsaken area or in the Dandys world area or in the the freak circus area
-I like writing stories and traumatizing my characters and I have like a 20 page essay in my head of lil my world of OCS
-I over explain things so I often walltext (aka writing a whole paragraph) I'm sorry if I do that (◞‸◟ㆀ)
-I have anger issues and ADHD so I might unintentionally do weird things or get frustrated and angry quickly, I don't mean it so if I get angry at you or make you feel uncomfortable I'm some way I'm supper sorry (◞‸◟ㆀ)
-I like being interacted with especially if I have the 'looking for chat' on or 'int' in my characters name it means that I would love to be interacted with and don't mind it if you just come up and cuddle with me
-I got Walmart Internet so I will prob disconnect more then two time's sanity
-I don't like shedletsky or itrapped from forsaken but idm someone int as em I just don't really like em they just pmo
-I wait to be approached I'm too shy to talk to ppl directly so unless I have DNI in my name PLEASE INT (same thing with cuddles+ hugs even if I don't have c+h in my name u can cud freely!, I mostly won't know how to react so I'd just give u a nod of acknowledgement) 
-english isn't my first language so mb if I get some things wrong
+1-I do not like being covered or covering someone in pony town so if I move away it doesn't mean I don't like you or Im being hostile I just don't wanna be covered or cover you cus I don't want to be rude ;v;
 
-my fictional husbands r
+2-I'm a lil awkward and I'm mostly quiet and random and I mostly like just listening instead of talking,and if I accidentally shift the conversation to myself it's completely unintentional and something my brain does without meaning to because I'm just trying to figure out a response but don't know what so I instead stay quiet or come up with something,but I've been noticing that so I try to stop it but if I accidentally do it I'm really sorry (◞‸◟ㆀ) and please do inform me if I do it, whenever I'm in pony town I always have to be doing something so usually playing in rps or mini games in docks or talking to my friends
+
+3-I'm usually in docks or in front of cafe in the forsaken area or in the Dandys world area or in the the freak circus area (mostly in the freak circus area) 
+
+4-I like writing stories and traumatizing my characters and I have like a 20 page essay in my head of lil my world of OCS
+
+5-I over explain things so I often walltext (aka writing a whole paragraph) I'm sorry if I do that (◞‸◟ㆀ)
+I have anger issues and ADHD so I might unintentionally do weird things or get frustrated and angry quickly, I don't mean it so if I get angry at you or make you feel uncomfortable I'm some way I'm supper sorry (◞‸◟ㆀ)
+
+6-I like being interacted with especially if I have the 'looking for chat' on or 'int' in my characters name it means that I would love to be interacted with and don't mind it if you just come up and cuddle with me
+
+7-I got Walmart Internet so I will prob disconnect more then two time's sanity
+I don't like shedletsky/telemon or itrapped from forsaken but idm someone int as em I just don't really like em they just pmo
+
+8-I wait to be approached I'm too shy to talk to ppl directly so unless I have DNI in my name PLEASE INT (same thing with cuddles+ hugs even if I don't have c+h in my name u can cud freely!, I mostly won't know how to react so I'd just give u a nod of acknowledgement) 
+
+9-english isn't my first language so mb if I get some things wrong
+
+10-my fictional husbands r
 # 1 Mycheal from mushroom oasis
 # 2 Ticket Taker from the freak circus
 # 3 Jester from the freak circus
+yes these r my yumeships, if you are a double you can int freely, I'm a sharing yumeshipper and we can share our husbands lmao-
 
-I'm not sure if that counts as yumishipping if they are FROM a dating yandere game ;v;, but idk if you int with me as them and ship urself or as MC idm cus I idm sharing :p
+11-I'm a minor so I'm not too comfortable with interacting with ppl over 20 (I'm under 17 but over 12) but idm being friends
 
-I'm a minor so I'm not too comfortable with interacting with ppl over 20 b(I'm under 17 but over 12) but idm being friends
-I don't online date like ever but if I'm calling someone or someone is calling me wife or smth like dat they are my bff we ain't dating fam 🙏
+12-I don't online date like ever but if I'm calling someone or someone is calling me wife or smth like dat they are my bff we ain't dating fam 🙏 (I'm not shaming you if u online date, it's just not 4 me but if u online date especially if you KNOW the person your dating with, don't care 4 my opinion, it's ur life! and I don't got a say in it) 
 
-my keyboard makes me wanna commit crimes sometimes with how glitchy n laggy it is especially with the typos and autocorrect it pmo sometimes
+13-my keyboard makes me wanna commit crimes sometimes with how glitchy n laggy it is especially with the typos and autocorrect it pmo sometimes
 
-if u r one of my bffs and want to be mentioned as in (_name u go by_ - _quote_ _can be more then one_) just message me on discord
-yes I have discord if u want to talk to me on disc just ask and I'll give u it
+14-idm talking about serious topics or even venting, vent to me freely and I'll listen! 
 
-I have Walmart Internet lowkey
+(if u r one of my bffs and want to be mentioned as in (_name u go by_ - _quote_ _can be more then one_) just message me on discord
+yes I have discord if u want to talk to me on disc just ask and I'll give u it) 
 
-I fickin Noob and Looey -Noob is me when I'm alone cus I get anxious and nervous I don't like being alone and looey is me with friends BC I got adhd- \ idm doubles and you can int with any ship even if I'm as my kin pony
+15-I fickin Noob and Looey -Noob is me when I'm alone cus I get anxious and nervous I don't like being alone and looey is me with friends BC I got adhd- \ idm doubles and you can int with any ship even if I'm as my kin pony
 
 
 # my BESTIESSSS <3333 {WE'RE MARRIED TRUST}
