@@ -3,6 +3,8 @@ Hello!
 I go by Roka or Trigger
 my pronouns are She/her but you can call me whatever name or pronouns the character I'm using ATM
 
+I am socially awkward so even though I want to talk and int with others, i wait to be approached first, I don't approach first cus I'm too shy and awkward, I do most of the time, want to interact with others, and if I have the 'looking for chat' icon or have 'Int' in my name, please interact I'm nice I'm just a lil quiet
+
 _things I like_: drawing, art, randoms, talking to others, listening to lore, torture, pain and trauma (IN FICTION NOT IRL), writing lore, watching anime, watching gamers, YouTube, visual novels, making characters, making skin in pony town, playing fashion roulettes and find the skins in pony town, animals, my friends, cuddles in pony town (if you want to cuddle in the game you can idm!), ships, randoms, headcanons, aus, songs, song lyrics
 
 _things I don't like_: rude people, people beefing for no reason, being covered in pony town and covering others (if it's in cuddles idm) people who support @bu53 and or do it, p3d05 and 🍇i5t5 (I will commit crimes against one if I see one irl and I say that proudly cus I hate them), people playing the victim, pick mes, people insulting my friends, dark/proships and shippers, people who are ok with Trump existing, people who support 15r34l (I'm Arab so I'm bais), manipulative ppl
