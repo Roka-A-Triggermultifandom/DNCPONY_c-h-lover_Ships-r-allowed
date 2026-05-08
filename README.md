@@ -63,7 +63,7 @@ yes these r my yumeships, if you are a double you can int freely, I'm a sharing 
 (if u r one of my bffs and want to be mentioned as in (_name u go by_ - _quote_ _can be more then one_) just message me on discord
 yes I have discord if u want to talk to me on disc just ask and I'll give u it) 
 
-15-I fickin Noob and Looey -Noob is me when I'm alone cus I get anxious and nervous I don't like being alone and looey is me with friends BC I got adhd- \ idm doubles and you can int with any ship even if I'm as my kin pony
+15-I fickin Noob and Looey (and slightly Lampchop) -Noob is me when I'm alone cus I get anxious and nervous I don't like being alone and looey is me with friends BC I got adhd, Lampchop..?..ehhh..hard to explain but I ain't a killer nor do I support kilers/murderers- \ idm doubles and you can int with any ship even if I'm as my kin pony
 
 
 # my BESTIESSSS <3333 {WE'RE MARRIED TRUST}
