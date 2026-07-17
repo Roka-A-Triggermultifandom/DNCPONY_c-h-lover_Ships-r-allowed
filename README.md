@@ -1,39 +1,39 @@
 # DNCPONY_c+h-lover_Ships-r-allowed
-Hello! 
-I go by Roka or Trigger
-my pronouns are She/her but you can call me whatever name or pronouns the character I'm using ATM
 
-I am socially awkward so even though I want to talk and int with others, i wait to be approached first, I don't approach first cus I'm too shy and awkward, I do most of the time, want to interact with others, and if I have the 'looking for chat' icon or have 'Int' in my name, please interact I'm nice I'm just a lil quiet
+- ̈⋆ʜᴇʟʟᴏ(*´∇`)ﾉ!
+- Call me Roka or Trigger! -or even refer to me as my fictionkins!-
+- I go by she/her but I'm fine with any pronounce!
+- feel free to interact with me! -interact first please I'm too scared to approach ppl first;v;-, I'm just socially awkward so I might be very quiet but do not worry I am often friendly...just a bit of a dry texter at first.. 
 
-_things I like_: drawing, art, randoms, talking to others, listening to lore, torture, pain and trauma (IN FICTION NOT IRL), writing lore, watching anime, watching gamers, YouTube, visual novels, making characters, making skin in pony town, playing fashion roulettes and find the skins in pony town, animals, my friends, cuddles in pony town (if you want to cuddle in the game you can idm!), ships, randoms, headcanons, aus, songs, song lyrics
+_things I like_: drawing, art, randoms, talking to others, listening to lore, torture, pain and trauma (IN FICTION NOT IRL cus irl things can make me really angry because I hate that those things happen in real life, no one deserves that other then the people who are causing harm in the FIRST PLACE), writing lore, watching anime, watching gamers, YouTube, visual novels, making characters, making skin in pony town, playing fashion roulettes and find the skins in pony town, animals, my friends, cuddles in pony town (if you want to cuddle in the game you can idm!), ships, randoms, headcanons, aus, songs, song lyrics, calm
 
-_things I don't like_: rude people, people beefing for no reason, confrontations/fights, being covered in pony town and covering others (if it's in cuddles idm) people who support @bu53 and or do it, p3d05 and 🍇i5t5 (I will commit crimes against one if I see one irl and I say that proudly cus I hate them), people playing the victim, pick mes, people insulting my friends, dark/proships and shippers, people who are ok with Trump existing (that rotten fruit is NOT a human don't even try to convince me ,o treat IT as one) , people who support 15r34l, manipulative ppl,ICE and Epstein supporters, people who make jokes about the last things I mentioned here
+_things I don't like_: rude people, people beefing for no reason, confrontations/fights, being covered in pony town and covering others (if it's in cuddles idm) people who support @bu53 and or do it, p3d05 and 🍇i5t5 (I will commit crimes against one if I see one irl and I say that proudly cus I hate them), people playing the victim, pick mes, people insulting my friends, dark/proships and shippers, people who are ok with Trump existing (that rotten fruit is NOT a human don't even try to convince me ,o treat IT as one) , people who support 15r34l, manipulative ppl,ICE and Epstein supporters, people who make jokes about the last things I mentioned here, confrontation and fighting (I tend to just shut down when those happen I get reaaaallly uncomfortable so please avoid interacting if your intention is to just fight I will probably hide you) 
 
-~•Fandoms I'm in or/and like and youtubers too cus why not•~ : murder drones, how to train your dragon, it's not me it's my basement, crowscare, sweet NO death (and other visual novel games made by Arcadekitten like lucky rabbit club, my neighbor Enide,Fia's night out), Enigmaverse, campfire cooking in another world with my absurd skill, Inuyasha, hunter x hunter, the freak circus, the kid at the back, mushroom oasis, deadplate, rot in paradise, broken colors, forsaken, misterclockworks, manlybadasshero, Lion (I forgohisis full channel name but he plays visual novels and streams them and puts videos on YouTube), Eddie (I forgot his full channel name but he's a Mexican guy who reacts to spooky stuff and plays spooky games at least from what I watch), itsfunneh, undertale, little nightmares, stray (the cyberpunk cat game and I have made b-12), Wall-E, Dandys world, and probably wayyy more I'll add later if I remember them
-(note: if the developers or people partaking in these fandoms or games are bad people or have done unacceptable things, I'm probably not aware and sure as hell don't support them, I mostly like the characters and the stories, not the makers) 
+~•Fandoms I'm in or/and like and youtubers too cus why not•~ : murder drones, how to train your dragon, it's not me it's my basement, crowscare, sweet NO death (and other visual novel games made by Arcadekitten like lucky rabbit club, my neighbor Enide,Fia's night out), Enigmaverse, campfire cooking in another world with my absurd skill, Inuyasha, hunter x hunter, the freak circus -fandom iwc as much as I don't mind the freakyness...some of the people I've met tend to be problematic..-, the kid at the back, mushroom oasis -love this one the most if you like it as well PLEASE INTERACT I NEED MORE MO FRIENDS-, deadplate, rot in paradise, broken colors -fandom iwc-, forsaken, misterclockworks, manlybadasshero, Lion (I forgohisis full channel name but he plays visual novels and streams them and puts videos on YouTube), special edd, itsfunneh, little nightmares, stray (the cyberpunk cat game with a lil bot guy named b-12), Wall-E, Espoir -don't think that's how you spell her name right but she's a sweet millenial youtuber lady, Dandys world -don't support qwell + fandom iwecuf-,animal hospital, Okegom -fandom iwvec I only saw some things about it and I've heard that the creator isn't a good person..-, and probably wayyy more I'll add later if I remember them
+(note: if the developers or people partaking in these fandoms or games are bad people or have done unacceptable things, I'm probably not aware and sure as hell don't support them, I mostly like the characters and the stories, not the makers,unless the youtubers I follow are problematic please inform me) 
 note: I'm highly insensitive to a lot of things in in these (examples: gore, yandere, obsessive, murder, torture, torment, horror, etc) I don't mind them and it's mostly because I like how they are written . if you are uncomfortable with my interests or the topics they have/talk about, be sure to tell me so I don't make you uncomfortable! 
 
-`comfort characters` : Lampchop -from sweet NO death-, Acorn -also from sweet no dead also not sure if that is their name-, Mycheal -from mushroom oasis-, Noob -from forsaken or roblox in gen-, Wall-E -from...well Wall-E-, Uzi -from murder drones-, any tfc character (I love the silly goober clown), toothless -from httyd-, Looey -from Dandy's world- , Elliot -from forsaken or pizza place-
+`comfort characters` : Lampchop -from sweet NO death-, Acorn -also from sweet no dead also not sure if that is their name-, Mycheal -from mushroom oasis-, Noob -from forsaken or roblox in gen-, Wall-E -from...well Wall-E-, Uzi -from murder drones-, Jester and Ticket Taker -from tfc but still iwcuf-, toothless -from httyd-, Looey -from Dandy's world but still iwecuf- , Elliot -from forsaken or pizza place-
 (cuddling is encouraged if u are using any of these characters!!!) 
 
-I'm a multishipper meaning I aallow aanyships even if it was with my own original characters, and idm yumeshippers (people who ship themselves with certain characters) and if you want you can int for the purposes of ships with whatever character I am atm and you can ask me to change skins if I have the character your looking for 
+I'm a multishipper meaning I accept anyships even if it was with my own original characters, and idm yumeshippers (people who ship themselves with certain characters) as I am one myself + my friends were ones before so my experiences are positive so they are welcome,and if you want you can int for the purposes of ships with whatever character I am atm and you can ask me to change skins if I have the character your looking for 
 
 
-**HEAVY DNI : child x any adult shippers, animal characters x normal humans/humanoid characters shippers, parent x child shippers, p3d0s, 🍇1st5, 5/@-ers (unless you were FORCED bc I know some people get forced to do that typa crap and feel very guilty so but the ones that aren't unless you're drowning in guilt kys I have very serious hatred towards you mfs cus my friends experienced some of these horrors and people do horrible things to themselves bc of those things, so I mean it when I say kys if you do those things without drowning in guilt, if you don't like it get out) / homophobic and transphobic dni / copycats dni, mostly the same things as the things I don't like**
+**HEAVY DNI : child x any adult shippers, animal characters x normal humans/humanoid characters shippers, parent x child shippers, p3d0s, 🍇1st5, 5/@-ers (unless you were FORCED bc I know some people get forced to do that typa crap and feel very guilty so but the ones that aren't unless you're drowning in guilt kys I have very serious hatred towards you mfs cus my friends experienced some of these horrors and people do horrible things to themselves bc of those things, so I mean it when I say kys if you do those things without drowning in guilt, if you don't like it get out) / homophobic and transphobic dni / copycats dni, mostly the same things as the things I don't like, confrontation or just for the purpose of fighting especially if you are 2 or more people I know and keep fighting with each other please leave me out of it I had thought to quit ponytown for this exact reason multiple times**
 
-if you want to take inspo from my skins please ask, if it's the colors or the color pattern as long as the items, hair, and tail is all urs then idm and you don't have to ask, if it's a certain hairstyle please ask especially if your doing it on the same char as I am atm, clothes idm just don't copy the waist acc cus its mostly a random one I like to blend in for texture, if it's more then one of these especially on the same character I am then hell no (it's alright if you made it before you even met me -also I don't copy others and even go out of my wat to do something differently cus I don't want to seem like Im copying sm1-) 
+if you want to take inspo from my skins please ask, if it's the colors or the color pattern as long as the items, hair, and tail is all urs then idm and you don't have to ask, if it's a certain hairstyle please ask especially if your doing it on the same char as I am atm, clothes idm just don't copy the waist acc cus its mostly a random one I like to blend in for texture, if it's more then one of these especially on the same character I am then hell no (it's alright if you made it before you even met me -also I don't copy others and even go out of my wat to do something differently cus I don't want to seem like Im copying sm1-) unless it's one of my very close friends like Ayumi, Gabe, and Mellow
 
 I like giving out compliments for no good reason I just like giving them to make someones day or sm1 happier
 yes I will make fun of my own skins it doesn't mean I don't like em (unless they're very old or my first skins) I just like making fun of then and mostly just want sm1 to laugh at it
 
-I like over sharing but it's mostly where I am currently or doing, no I don't vent most times because I like to keep serious things to myself because I just don't like talking about them
+I like over sharing but it's mostly where I am currently or doing, no I don't vent most times because I like to keep serious things to myself because I just don't like talking about them and please do not push about them especially if I'm already upset or tired
 
--random info about meh-
+-random info about me-
 1-I do not like being covered or covering someone in pony town so if I move away it doesn't mean I don't like you or Im being hostile I just don't wanna be covered or cover you cus I don't want to be rude ;v;
 
 2-I'm a lil awkward and I'm mostly quiet and random and I mostly like just listening instead of talking,and if I accidentally shift the conversation to myself it's completely unintentional and something my brain does without meaning to because I'm just trying to figure out a response but don't know what so I instead stay quiet or come up with something,but I've been noticing that so I try to stop it but if I accidentally do it I'm really sorry (◞‸◟ㆀ) and please do inform me if I do it, whenever I'm in pony town I always have to be doing something so usually playing in rps or mini games in docks or talking to my friends
 
-3-I'm usually in docks or in front of cafe in the forsaken area or in the Dandys world area or in the the freak circus area (mostly in the freak circus area) 
+3-I'm usually in or near the tfc area or docks and rarely the forsaken area, other times I'm in other places is when I'm with a friend(s) 
 
 4-I like writing stories and traumatizing my characters and I have like a 20 page essay in my head of lil my world of OCS
 
@@ -52,24 +52,28 @@ I have anger issues and ADHD so I might unintentionally do weird things or get f
 # 1 Mycheal from mushroom oasis
 # 2 Ticket Taker from the freak circus
 # 3 Jester from the freak circus
-yes these r my yumeships, if you are a double you can int freely, I'm a sharing yumeshipper and we can share our husbands lmao- (I'm a highly sharing yumeshipper) 
+yes these r my yumeships, if you are a double you can int freely -even if you kin these characters but that'd feel a bit weird..i don't ship myself with real people but if you want to int or cuddle you can-, I'm a sharing yumeshipper and we can share our husbands lmao- (I'm a highly sharing yumeshipper) 
 
-11-I'm a minor so I'm not too comfortable with interacting with ppl over 20 (I'm under 17 but over 12) but idm being friends
+11-I'm a minor so I'm not too comfortable with interacting with ppl over 18 (I'm under 17 but over 12) but idm being friends just if over 18 iwec
 
-12-I don't online date like ever but if I'm calling someone or someone is calling me wife or honny or hun or smth like dat they are my bff we ain't dating fam 🙏 (I'm not shaming you if u online date, it's just not 4 me but if u online date especially if you KNOW the person your dating with, don't care 4 my opinion, it's ur life! and I don't got a say in it) 
+12-I don't online date like ever but if I'm calling someone or someone is calling me wife or honny or hun or smth like dat they are my bff we ain't dating fam 🙏 (I'm not shaming you if u online date, it's just not 4 me but if u online date especially if you KNOW the person your dating with, don't care 4 my opinion, it's ur life! and I don't got a say in it) and I only have 3 platonic spouses (platonically married but we are actually bffs) Ayumi, Gabe, and Mellow (I do give these 3 special treatment as my platonic wives and husbando, so even if I have dni in my name especially when upset these 3 can interact with me, 
 
-13-my keyboard makes me wanna commit crimes sometimes with how glitchy n laggy it is especially with the typos and autocorrect it pmo sometimes
+13-my keyboard makes me wanna commit crimes sometimes with how glitchy n laggy it is especially with the typos and autocorrect it pmo sometimes so expect a lot of typos
 
-14-idm talking about serious topics or even venting, vent to me freely and I'll listen! 
+14-idm talking about serious topics or even venting, vent to me freely and I'll listen! (just inform me if you JUST want sm1 to listen and not try to fix things because I tend to turn into a philologist and try to explain that your reaction is valid to the certain situation which is a weird habit I have I'm sorry) 
 
 (if u r one of my bffs and want to be mentioned as in (_name u go by_ - _quote_ _can be more then one_) just message me on discord
 yes I have discord if u want to talk to me on disc just ask and I'll give u it) 
 
-15-I fickin Noob and Looey (and slightly Lampchop) -Noob is me when I'm alone cus I get anxious and nervous I don't like being alone and looey is me with friends BC I got adhd, Lampchop..?..ehhh..hard to explain but I ain't a killer nor do I support kilers/murderers- \ idm doubles and you can int with any ship even if I'm as my kin pony
+15- my fictionkins are : 
+Lambchop -from sweet NO death- : no I'm not a psychopathic murderer I just somewhat share the same pov on things and have a messed up mind even though I look innocent when I'm sure the hell not, I'm also insensitive to gore and violence
+Looey -from Dandy's world fandom iwec- : as I'm energetic when with friends but still a bit awkward and tend to worry
+Noob -from roblox in general not specifically forsaken- : I tend to be very anxious alone
 
 
-# my BESTIESSSS <3333 {WE'RE MARRIED TRUST}
 
-Cuddling-Encouraged-heavily-Dnc: 1x1x1x1's canon wife + 1x1x1x1 irl [REAL 1X -trust-]
+# my BESTIESSSS <3333 
+
+Cuddling-Encouraged-heavily-Dnc: 1x1x1x1's canon wife + 1x1x1x1 irl [REAL 1X -trust-] -wife <3 /platonic-
 
 this is still a wip and unorganized AF but it works for now ;v:
