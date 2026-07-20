@@ -1,9 +1,10 @@
-# DNCPONY_c+h-lover_Ships-r-allowed
+# please do NOT copy or take inspo of my ponies without my knowledge and permission, c+h freely all the time even if I have dni in my name, int freely most times -this is for Ponytown-
 
 - ̈⋆ʜᴇʟʟᴏ(*´∇`)ﾉ!
 - Call me Roka or Trigger! -or even refer to me as my fictionkins!-
 - I go by she/her but I'm fine with any pronounce!
-- feel free to interact with me! -interact first please I'm too scared to approach ppl first;v;-, I'm just socially awkward so I might be very quiet but do not worry I am often friendly...just a bit of a dry texter at first.. 
+- feel free to interact with me! -interact first please I'm too scared to approach ppl first;v;-, I'm just socially awkward so I might be very quiet but do not worry I am often friendly...just a bit of a dry texter at first..
+- please note that Im not serious most of the time, I joke around often, if I act a bit mean or sarcastic -especially using a character that usually acts like that because I'm usually unintentionally in roleplay mode- I don't mean it at all and I'm deeply sorry if I hurt you in any way acting like that I promise I didn't mean to hurt you ;-;
 
 _things I like_: drawing, art, randoms, talking to others, listening to lore, torture, pain and trauma (IN FICTION NOT IRL cus irl things can make me really angry because I hate that those things happen in real life, no one deserves that other then the people who are causing harm in the FIRST PLACE), writing lore, watching anime, watching gamers, YouTube, visual novels, making characters, making skin in pony town, playing fashion roulettes and find the skins in pony town, animals, my friends, cuddles in pony town (if you want to cuddle in the game you can idm!), ships, randoms, headcanons, aus, songs, song lyrics, calm
 
